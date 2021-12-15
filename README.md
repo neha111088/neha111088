@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/neha111088?tab=repositories](https://github.com/neha111088?tab=repositories)
 
-- 📫 How to reach me **uradeneha11@gmail.com**
+- 📫 How to reach me **neha88.ai@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
